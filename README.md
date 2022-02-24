@@ -1,2 +1,0 @@
-# norvegiacoin
-Very good stuff
